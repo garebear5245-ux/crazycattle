@@ -1,1 +1,1 @@
-# i just wanna paly on chromebook
+# i just wanna play on chromebook
